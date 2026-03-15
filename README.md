@@ -79,6 +79,8 @@ Recovered Deleted File List and Details
 
 <img width="1919" height="1021" alt="Image" src="https://github.com/user-attachments/assets/757046ae-ab1f-40d7-8e23-cd731b9a415c" />
 
+<img width="1919" height="1021" alt="Image" src="https://github.com/user-attachments/assets/bb61cbe1-478f-46fb-bcdf-7e7144287a50" />
+
 <img width="1919" height="1016" alt="Image" src="https://github.com/user-attachments/assets/cc456f61-4222-45de-9565-397c7cd76515" />
 
 ## RESULT:
